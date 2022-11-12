@@ -1,4 +1,4 @@
 # Woopear  
 
 🙋‍♀️  
-> Welcome to Woopear for profit association, just code and cool projects
+> Welcome to Woopear developer collective, just code and other cool projects
